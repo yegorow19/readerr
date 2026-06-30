@@ -23,4 +23,4 @@ This app is not directed at children under 13. We do not knowingly collect data 
 7. Changes to This Policy
 We may update this policy. Continued use of the app after changes constitutes acceptance.
 8. Contact
-If you have questions about this policy, contact us at: support@myreaderr.com
+If you have questions about this policy, contact us at: tales_blazes26@icloud.com
